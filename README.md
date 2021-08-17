@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IntuitiveThoughtLLC
-- 👀 I’m interested in codes
+- 👀 I’m interested in many codes
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on your vision
 - 📫 How to reach me intuitivethought.com
